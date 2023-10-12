@@ -8,4 +8,4 @@ Giải đấu được tổ chức theo hình thức đấu loại trực tiếp
 Giải đấu PvP Onmyoji thu hút sự quan tâm của cộng đồng game thủ và những người yêu thích thể thao điện tử. Các trận đấu sẽ được trực tiếp trên các nền tảng trực tuyến và thu hút hàng ngàn người xem. Ngoài việc giành chiến thắng và danh hiệu, các vận động viên còn có cơ hội nhận được phần thưởng hấp dẫn, tạo thêm sự hấp dẫn và động lực cho sự cạnh tranh.
 
 Dự án giải đấu PvP Onmyoji là một bước tiến quan trọng trong việc phát triển cộng đồng game thủ Onmyoji và nâng cao sự nhận diện của trò chơi này trên thị trường eSports. Nó tạo ra một nền tảng để các vận động viên thể hiện tài năng và cống hiến của mình, đồng thời là một cơ hội để người hâm mộ thưởng thức những trận đấu hấp dẫn và đầy kịch tính.
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQMld07DGwWY2yFl7ZTYV7P17_WBM1wLVRc8RW1-W0o7cM9vIhrxjqYruqUtvitCTCbipM&usqp=CAU">
+<img src="https://i.ytimg.com/vi/rQRkJQ739Zw/maxresdefault.jpg">
